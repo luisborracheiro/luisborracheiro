@@ -13,4 +13,4 @@
 
 -klemba.luis@escola.pr.gov.br
 
-https://tenor.com/pt-BR/view/gremio-brazil-gif-
+![](https://media.tenor.com/VvfSw8NZprwAAAAC/gremio-brazil.gif-)
